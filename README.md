@@ -4,7 +4,7 @@ Jimmm梯子是一款高速稳定的VPN加速器服务，支持流媒体和ChatGP
 
 最新地址：[jimmm.life](https://jimmm.life/register?code=zcAWaTLB)
 
-备用官网：[47.243.136.138](http://47.243.136.138/register?code=zcAWaTLB)
+备用官网：[kkbaike.com](https://kkbaike.com/go/jimmm/)
 
 > 可靠的互联网接入方案，一直能用的梯子，快速稳定，瞬间即达
 
